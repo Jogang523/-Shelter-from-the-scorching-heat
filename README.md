@@ -1,1 +1,1 @@
-# -Shelter-from-the-scorching-heat
+# Shelter-from-the-scorching-heat
